@@ -1,2 +1,2 @@
-# sechool.github.i0
+# sechool.github.io
 Daarul Ahkaam
